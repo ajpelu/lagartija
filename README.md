@@ -2,4 +2,4 @@
 
 Le gustan las lagartijas
 
-Pero las chiquititas 
+Pero las chiquititas y de color rosita y amarillito 
